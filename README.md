@@ -4,5 +4,5 @@
 - meus pronomes são ela/dela
 - gosto de escutar música
 
-![vxvc](https://github.com/user-attachments/assets/b926a566-d9a8-4adb-a475-bb477354d735)
+![vxvc](https://tenor.com/view/hello-kitty-drawing-hello-kitty-red-cute-gif-26794581)
   
