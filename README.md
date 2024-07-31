@@ -4,5 +4,5 @@
 - meus pronomes são ela/dela
 - gosto de escutar música
 
-! [ ] (https://tenor.com/pt-BR/view/0ikeu-heeseung-lee-heeseung-wolf-meme-wolf-gif-4408299912914010420)
+![vxvc](https://github.com/user-attachments/assets/b926a566-d9a8-4adb-a475-bb477354d735)
   
